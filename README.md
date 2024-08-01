@@ -38,7 +38,8 @@ Uber 遭到网络攻击
 这个简易教程不是很完善，但对于初学者小白 了解入门足够了。
 
 
-如果你比较懒，又需要详细资料+工具，加入qq群782771995咨询.
+如果你比较懒，又需要详细资料+工具，可以付费购买
+https://zgqinc-my.sharepoint.com/:f:/g/personal/zgq_zgqinc_onmicrosoft_com/Eg8WzhJenRBIsUcVaLsqwwsBOSSuCj5HGMpGt1J5Z-BJHw?e=yNO902
 
 
 
